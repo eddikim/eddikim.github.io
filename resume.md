@@ -1,6 +1,6 @@
 # Ryan Reynolds
 
-<img src="https://mobile.twitter.com/VancityReynolds/photo" width="200" height="200">
+<img src="https://images.wsj.net/im-419939?width=1920&size=0.8852005532503457&pixel_ratio=1.5" width="200" height="200">
 
 vancityreynolds@gmail.com
 
@@ -8,7 +8,7 @@ http://www.instagram.com/vancityreynolds
 
 http://www.linkedin.com/in/ryanreynolds
 
-<blockquote> I think you have to let go of this idea that you can be precious about everything, and 
+<blockquote> "I think you have to let go of this idea that you can be precious about everything, and 
 let it be the abstract mess that it is." </blockquote> 
 
 # Summary
