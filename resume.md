@@ -1,6 +1,6 @@
 # Ryan Reynolds
 
-<img src="https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.gq-magazine.co.uk%2Flifestyle%2Farticle%2Fryan-reynolds-wrexham-afc&psig=AOvVaw0XL-6dCcRAvg-c21odI0a4&ust=1674268899655000&source=images&cd=vfe&ved=0CA8QjRxqFwoTCMDUquyP1fwCFQAAAAAdAAAAABAJ" width="200" height="200">
+<img src="https://mobile.twitter.com/VancityReynolds/photo" width="200" height="200">
 
 vancityreynolds@gmail.com
 
@@ -9,7 +9,7 @@ http://www.instagram.com/vancityreynolds
 http://www.linkedin.com/in/ryanreynolds
 
 <blockquote> I think you have to let go of this idea that you can be precious about everything, and 
-let it be the abstract mess that it is." - Ryan Reynolds </blockquote> 
+let it be the abstract mess that it is." </blockquote> 
 
 # Summary
 
