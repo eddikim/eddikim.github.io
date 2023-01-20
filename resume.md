@@ -1,6 +1,6 @@
 # Ryan Reynolds
 
-<img src="https://images.wsj.net/im-419939?width=1920&size=0.8852005532503457&pixel_ratio=1.5" width="200" height="200">
+<img src="https://images.wsj.net/im-419939?width=1920&size=0.8852005532503457&pixel_ratio=1.5" width="200" height="250">
 
 vancityreynolds@gmail.com
 
