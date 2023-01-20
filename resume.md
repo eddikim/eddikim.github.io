@@ -8,12 +8,14 @@ http://www.instagram.com/vancityreynolds
 
 http://www.linkedin.com/in/ryanreynolds
 
+
 <blockquote> "I think you have to let go of this idea that you can be precious about everything, and 
 let it be the abstract mess that it is." </blockquote> 
 
+
 # Summary
 
-# Work Experience (only last 10 years)
+# Notable Work Experience
 
 ## New York University (New York, NY)
 
