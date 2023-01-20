@@ -1,10 +1,15 @@
 # Ryan Reynolds
 
+<img src="https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.gq-magazine.co.uk%2Flifestyle%2Farticle%2Fryan-reynolds-wrexham-afc&psig=AOvVaw0XL-6dCcRAvg-c21odI0a4&ust=1674268899655000&source=images&cd=vfe&ved=0CA8QjRxqFwoTCMDUquyP1fwCFQAAAAAdAAAAABAJ">
+
 vancityreynolds@gmail.com
 
 http://www.instagram.com/vancityreynolds
 
 http://www.linkedin.com/in/ryanreynolds
+
+"I think you have to let go of this idea that you can be precious about everything, and 
+let it be the abstract mess that it is." - Ryan Reynolds
 
 # Summary
 
@@ -16,8 +21,6 @@ http://www.linkedin.com/in/ryanreynolds
 
 Broadway Actor (3/4/2000 - 11/24/2000)
 
-Summary of your role
-
 - Played a lead role in a sold out broadway production
 - Assisted in the production of the show 
 - Performed on one of the largest stages in New York City
@@ -28,8 +31,6 @@ Summary of your role
 
 Green Lantern Lead (5/15/2010 - 1/20/2012)
 
-Summary of your role
-
 - Played the lead character of a major blockbuster movie
 - Coordinated with the rest of the film crew to bring the script to life
 - Part of a major theatrical release 
@@ -39,8 +40,6 @@ Summary of your role
 * [University of Cambridge][] Where I earned my PhD in Film Directing with a 3.95*
 
 Director and Lead Actor of Deadpool 3 (7/12/2023 - 8/9/2024)
-
-Summary of your role
 
 - Lead star of a Marvel movie that is currently in production
 - Worked as the director of this film while acting in it 
